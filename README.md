@@ -10,7 +10,7 @@ I hope this text finds you well.
 
 I sincerely apologize for the inconvenience, but I regret to inform you that I have <strong>misplaced my scholarship certificate</strong> and am unable to provide a copy at this time. I understand that this document is important for the evaluation process, and I truly appreciate your understanding. 
 
-I would be happy to provide alternative proof, such as official confirmation from my university or any other supporting documents.
+I would be glad to provide alternative proof, such as official confirmation from my university.
 
 Once again, I apologize for the inconvenience, and I appreciate your time and consideration.
 
